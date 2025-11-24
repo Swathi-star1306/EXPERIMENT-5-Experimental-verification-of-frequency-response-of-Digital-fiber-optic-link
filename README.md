@@ -140,6 +140,11 @@ cap. Now tighten the cap by screwing it back.
 
 <img width="599" height="322" alt="image" src="https://github.com/user-attachments/assets/1315dcd7-7a5b-49a4-8d9f-c2b4ceec2feb" />
 
+
+![WhatsApp Image 2025-11-24 at 14 23 39_4fabeb48](https://github.com/user-attachments/assets/7bca2da7-c318-4f29-a799-0300bdbf91d5)
+
+
+
 ---
 
 ## RESULT
